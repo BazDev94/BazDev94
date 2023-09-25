@@ -1,6 +1,6 @@
-### Hi there 👋
 
-# 💫 About Me:
+
+# 💫 Hi there 👋
 I'm alway working on somethings<br>I am a software developer and a true lover of technology, especially technology that innovates the world and improves the lives of people. <br>I think technology can make many things possible that were unthinkable before.<br>
 
 
